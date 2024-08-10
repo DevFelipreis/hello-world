@@ -17,7 +17,7 @@ Atuo como **Desenvolvedor de Software Backend** desde 2023 e **Mobile** desde 20
 
 ---
 
-### Saiba mais sobre meus projetos profissionais e acadêmicos
+### Saiba mais sobre meus projetos profissionais, pessoais e acadêmicos
 
 - **[LinkedIn](https://www.linkedin.com/in/devlfreis/) | [YouTube](https://www.youtube.com/channel/UCHtZUpwqO_FhX5qshDDdCow) | [E-mail](mailto:lfreis.contato@gmail.com)**
 
